@@ -1,2 +1,0 @@
-# akbar-c-o
-sooraj
